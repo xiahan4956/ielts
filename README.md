@@ -66,3 +66,6 @@ today I have tried to use claude to summary some books into English to read.Then
 
 
 12-22  今天终于精听完了一个joe rogan 采访pavel tasoline的youtube...听的有点久  
+
+
+12-22  今天终于精听完了一个joe rogan 采访pavel tasoline的youtube...听的有点久  
